@@ -1,11 +1,11 @@
 # Ranking Bruno Mars songs (IMO)
-## #10 Lighters
-## #9 Lazy Song
-## #8 
-## #7 Talking to the moon
-## #6 It will rain
-## #5 Fly as me
+## #10 Lazy Song
+## #9 Treasure
+## #8 Talking to the moon
+## #7 It will rain
+## #6 24k Magic
+## #5 Grenade
 ## #4 Runaway
-## #3
-## #2
-## #1
+## #3 Fly as me 
+## #2 Smoking out the window
+## #1 Thats why I like
