@@ -3,7 +3,7 @@
 ![Grenade (Song)-Wikipedia](https://upload.wikimedia.org/wikipedia/en/3/36/BrunoMarsGrenade.jpg)
 
 [Bruno Mars - Grenade (Official Music Video)](https://www.youtube.com/watch?v=SR6iYWJxHqs).
-This classic released in 2010 is gauranteed to make everyone sinalong.
+This classic released in 2010 is gauranteed to make everyone sing along.
 ## #4 Runaway
 ![Runaway Baby by Bruno Mars (Single, Pop Rock):Reviews,Ratings,Credits,Song List-Rate Your Music](https://e.snmc.io/i/1200/s/c69846f5f64ecf02dd519e80ce3de1d4/3966085)
 
